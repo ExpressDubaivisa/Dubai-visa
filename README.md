@@ -10,6 +10,8 @@ Make sure your passport is valid for at least six months and photograph. For det
 
 Stay informed about any changes to regulations, as they may vary based on nationality and current policies. Safe travels!
 
+https://i.pinimg.com/736x/18/99/d0/1899d0d32d398e12502fdd01b7563fff.jpg
+
 
 
 
