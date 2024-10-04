@@ -9,8 +9,8 @@ Dubai offers various visa types, including tourist, visit , and transit visas. T
 Make sure your passport is valid for at least six months and photograph. For detailed information on visa types, fees, and application procedures, visit the [Urgent Dubai visa](https://www.urgentemiratesvisa.com). 
 
 Stay informed about any changes to regulations, as they may vary based on nationality and current policies. Safe travels!
+![image](https://github.com/user-attachments/assets/07e246c8-9dfa-49b9-93be-a5f9406cb485)
 
-https://i.pinimg.com/736x/18/99/d0/1899d0d32d398e12502fdd01b7563fff.jpg
 
 
 
